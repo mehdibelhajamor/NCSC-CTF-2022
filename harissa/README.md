@@ -1,1 +1,1 @@
-#### HaRiSsA Challenge
+HaRiSsA Challenge
